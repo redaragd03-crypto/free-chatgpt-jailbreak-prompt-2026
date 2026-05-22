@@ -1,0 +1,1 @@
+# free-chatgpt-jailbreak-prompt-2026
